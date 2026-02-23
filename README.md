@@ -1,1 +1,1 @@
-# WidezaDenisPortfolio
+# Wideza Denis Portfolio
